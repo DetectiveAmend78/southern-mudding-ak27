@@ -1,4 +1,4 @@
-# 
+# dig deeper for brainrots Scripts updated offers the most advanced dig deeper for brainrots Script, with anti-ban and auto-heal. Perfect for
 
 
 
